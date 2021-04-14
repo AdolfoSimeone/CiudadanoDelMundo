@@ -1,2 +1,3 @@
-# CiudadanoDelMundo
-Constitución del Ciudadano del Mundo
+# Constitución del Ciudadano del Mundo
+
+Basada en el manuscrito de Marco Peter Gunn
