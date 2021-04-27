@@ -98,7 +98,7 @@ a continuar...
 Como el ciudadano del mundo se entiende como una parte de un solo organismo tener enemigos significa ser enemigo de uno mismo. Cuando uno tiene la impresion que el otro trabaja en contra, el ciudadano busca la comunicacion.
 El reconoce la dificultad en este mundo de actuar libremente y bien, pero no niega que el deseo principal de la humanidad es de buscar la felicidad y el bien. El hombre es bueno, solo tiene mala fama o anda por mal camino o no esta libre. Como la luz necesita la oscuridad para existir, el bien necesita el mal. El mal existe en todos nosotros cen forma de la mala decision, del mal camino, de la mala actuacion. El mal como fuerza exterior no existe. Tampoco el mal personificado.
 Tampoco existe la "elite" que nos quiere esclavisar por ser malo. Todas esas tendencias del mundo que se ven hoy son producto del miedo, adicion, mala fama, falta de amor o falta de comprension.
-El politico es victima y no actua libremente sino por miedo o adicion. El demasiado rico esta robando por falta de amor o adicion como el ladro que consume pasta base y ambos nesesitan nuestra ayuda. Los CEO's; los bancos y seguros; la policia, el militar etc. actuan segun malas reglas del sistema y no son libres. Sus integrantes sonvictimas y merecen nuestra ayuda.
+El politico es victima y no actua libremente sino por miedo o adicion. El demasiado rico esta robando por falta de amor o adicion como el ladron que consume pasta base y ambos nesesitan nuestra ayuda. Los CEO's; los bancos y seguros; la policia, el militar etc. actuan segun malas reglas del sistema y no son libres. Sus integrantes son victimas y merecen nuestra ayuda.
 
 Si te gusta ese constitucion puedes difundirla, colaborar con un bien o servicio, mejorarla o criticarla.
 
