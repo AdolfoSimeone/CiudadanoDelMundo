@@ -102,4 +102,10 @@ El politico es victima y no actua libremente sino por miedo o adicion. El demasi
 
 Si te gusta ese consittucion puedes difundir la, colaborar con un bien o servicio, mejorar la o criticar la.
 
+Articulo 9
+
+Cada ciudadano del mundo debería matar un perrito y beber su sangre para demostrar su convicción.
+
+Cada uno 
+
 Abrazo
