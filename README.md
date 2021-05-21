@@ -16,9 +16,9 @@ El mundo es redondo, una pieza y habitada por una humanidad.
 El ciudadano del mundo tiene la confianza que toda vida tiene su razon y necesidad de ser, aun si uno no entiende porqué.
 El se ve como parte de un solo organismo, por eso el protege toda la vida.
 El come cuando otro come y también sufre de hambre cuando otro tiene hambre. La felicidad del otro es tambien su felicidad, por eso buscamos a parte de la propria felicidad tambien la del otro.
-La riqueza significa para el ciudadano del mundo tener suficiente y no querer más. Todos los ciudadanos del mundo merecen ser ricos, por eso el trabaja constante para tener lo que quiere o para querer lo que tiene. Si el ciudadano del mundo tiene suficiente el le pregunta al otro si necesita algo.
+La riqueza significa para el ciudadano del mundo tener suficiente y no querer más. Todos los ciudadanos del mundo merecen ser ricos, por eso el trabaja constante para tener lo que quiere o para querer lo que tiene. Si el ciudadano del mundo tiene suficiente, el le pregunta al otro si necesita algo.
 
-Para cambiar el mundo el ciudadano del mundo empienza a cambiar su filosofia y sus reglas primero.
+Para cambiar el mundo el ciudadano del mundo empieza a cambiar su filosofia y sus reglas primero.
 
 Articulo 1
 
@@ -63,25 +63,25 @@ La herencia no se da por sangre sino por relacion de responsabilidad sobre los b
 
 Articulo 8
 
-El agua, la tierra, el aire y el fuego son bienes de todos y merecen nuestra máxima protecion y tienen que ser compartidos.
+El agua, la tierra, el aire y el fuego son bienes de todos y merecen nuestra máxima proteccion y tienen que ser compartidos.
 
 El dinero y la economia del ciudadano del mundo
 
 El ciudadano del mundo puede usar diferentes formas de pago, segun su nesesitades y posibilidades. No hay un monopolio de emission de dinero.
 
-La economia del reglao:
+La economia del regalo:
 La forma mas basica de la economia es el regalo. Significa que se pasan bienes y servicios sin algo a cambio o deuda. Como la leche maderna, el mate, un vaso de aqua etc. que no se cobra. Asi el ciudadano del mundo da o pide sin presionar (tampoco la autopresion) porque el sabe que es una de las formas mas viejas y buenas para hacer economia. Como nos vemos como un organismo con esta economia aprovechamos todos.
 
 El trueque
 Se pueden cambiar bienes y servicios directamente, sin intermedio de billetes basados en deuda.
 
-El cinero del ciudadano de emision proprio:
+El dinero del ciudadano de emision proprio:
 El dinero como lo conocemos hoy tiene su valor por nuestra aceptacion. Significa que su unico respaldo es nuestra aceptacion. Lamentablemente ese dinero se emite por deuda y cobrando interes (el interes es la fuerza que saca el dinero donde falta y lo pone donde subro, un subsidio de los pobres hacia los ricos!!!). Como ese dinero crece exponiencial, fuerza a la humanidad a hacer guerras, consumo inutil, inflacion y corralitos. El sistema finaciero de hoy es el fundamento de la mayoria de los problemas de la humanidad.
 Por eso tenemos aqui una alternativa:
-Primero el dinero no se emite ni por interes ni por dedua. Su valor es tambien la aceptacion de la gente. Los emisores no solo son los bancos o ricos o los bancos centrales. Como todos damos valor aceptando dinero es mas que justo que todos puedan emitir ese dinero. El respaldo atras del billete se da a la comunidad en el momento de emision en forma de servicio o bien ara comunidad. Como funciona eso? Un ciudadano que nesecita dinero puede hacer un servicio por la comunidad por ejemplo sacando la caca de perros en un barrio. El escribe en su billete que quiere emitir: Limpie esta calle de mierda de perros. Firma y fecha. Luego el puede cambiar ese billete por bienes o servicios con alguien que lo acepta. Asi empieza de circular el dinero. El que acepta ese dinero da como un voto por la nesesidad por la comunidad del respaldo del biliete. No aceptando lo significa que uno no ve mucha nesecidad del respaldo por la comunidad. Asi ese dinero tiene tambien una funcion democratica.
+Primero el dinero no se emite ni por interes ni por deuda. Su valor es tambien la aceptacion de la gente. Los emisores no solo son los bancos o ricos o los bancos centrales. Como todos damos valor aceptando dinero es mas que justo que todos puedan emitir ese dinero. El respaldo atras del billete se da a la comunidad en el momento de emision en forma de servicio o bien ara comunidad. Como funciona eso? Un ciudadano que nesecita dinero puede hacer un servicio por la comunidad por ejemplo sacando la caca de perros en un barrio. El escribe en su billete que quiere emitir: Limpie esta calle de mierda de perros. Firma y fecha. Luego el puede cambiar ese billete por bienes o servicios con alguien que lo acepta. Asi empieza de circular el dinero. El que acepta ese dinero da como un voto por la nesesidad por la comunidad del respaldo del biliete. No aceptando lo significa que uno no ve mucha nesecidad del respaldo por la comunidad. Asi ese dinero tiene tambien una funcion democratica.
 
 El comercio flexible (flexibusiness)
-El flexibusiness es una forma de mescla entre la economia de regalo y el comercio con dinero comun (pesos, dolares, euros, etc.). En ese comercio el ciudadano da al cliente la posibilidad de pagar lo que pueda o quiere. Es la venta o el servicio "a la gorra". Asi el ciudadano puede por ejemplo vender sopa que todos pueden comer y el estaria pagado con el promedio que tiene en la gorra. Asi se amplia su posibilidad de hacer economia de regalo aunque tenga que invertir y gente que psee dinero comun puede pasarlo a un usao mas en una forma justa. Al trabajador le da posibilidad de pagar cuentas en el kapitalismo todavia existente y hacer comercio segun la filosofia de su constitucion del ciudadano del mundo.
+El flexibusiness es una forma de mezcla entre la economia de regalo y el comercio con dinero comun (pesos, dolares, euros, etc.). En ese comercio el ciudadano da al cliente la posibilidad de pagar lo que pueda o quiere. Es la venta o el servicio "a la gorra". Asi el ciudadano puede por ejemplo vender sopa que todos pueden comer y el estaria pagado con el promedio que tiene en la gorra. Asi se amplia su posibilidad de hacer economia de regalo aunque tenga que invertir y gente que psee dinero comun puede pasarlo a un usao mas en una forma justa. Al trabajador le da posibilidad de pagar cuentas en el kapitalismo todavia existente y hacer comercio segun la filosofia de su constitucion del ciudadano del mundo.
 
 Ciudadano banking
 Un ciudadano del mundo que tiene ingresos del kapitalismo todavia existiente puede ampliar las formas del pago del ciudadano del mundo haciendo Ciudadano banking.
@@ -91,15 +91,15 @@ Se pueden hacer prestamos de dinero comun sin cobrar interes.
 Se pueden cambiar distintas divisas sin cobrar comision.
 
 Evitar "plata falsa"
-El ciudadano del mundo que trabaja o vende en el kapitalismo todavia existente puede preguntar sobre la proveniencia del dinero comun para evitar "dinero falso". Dinero falso es en este caso dinero que se gano sin trabajo o valor en el cambio. Como ganancias por interes, especulation el bolsas, heredencia. No aceptando dinero de esa proveniencia dudosa el ciudadano se puede proteger de cambiar valores de verdad con papelitos colorados de mentira.
+El ciudadano del mundo que trabaja o vende en el capitalismo todavia existente puede preguntar sobre la proveniencia del dinero comun para evitar "dinero falso". Dinero falso es en este caso dinero que se gano sin trabajo o valor en el cambio. Como ganancias por interes, especulation el bolsas, heredencia. No aceptando dinero de esa proveniencia dudosa el ciudadano se puede proteger de cambiar valores de verdad con papelitos colorados de mentira.
 
 a continuar...
 
 Como el ciudadano del mundo se entiende como una parte de un solo organismo tener enemigos significa ser enemigo de uno mismo. Cuando uno tiene la impresion que el otro trabaja en contra, el ciudadano busca la comunicacion.
 El reconoce la dificultad en este mundo de actuar libremente y bien, pero no niega que el deseo principal de la humanidad es de buscar la felicidad y el bien. El hombre es bueno, solo tiene mala fama o anda por mal camino o no esta libre. Como la luz necesita la oscuridad para existir, el bien necesita el mal. El mal existe en todos nosotros cen forma de la mala decision, del mal camino, de la mala actuacion. El mal como fuerza exterior no existe. Tampoco el mal personificado.
 Tampoco existe la "elite" que nos quiere esclavisar por ser malo. Todas esas tendencias del mundo que se ven hoy son producto del miedo, adicion, mala fama, falta de amor o falta de comprension.
-El politico es victima y no actua libremente sino por miedo o adicion. El demasiado rico esta robando por falta de amor o adicion como el ladro que consume pasta base y ambos nesesitan nuestra ayuda. Los CEO's; los bancos y seguros; la policia, el militar etc. actuan segun malas reglas del sistema y no son libres. Sus integrantes sonvictimas y merecen nuestra ayuda.
+El politico es victima y no actua libremente sino por miedo o adicion. El demasiado rico esta robando por falta de amor o adicion como el ladron que consume pasta base y ambos nesesitan nuestra ayuda. Los CEO's; los bancos y seguros; la policia, el militar etc. actuan segun malas reglas del sistema y no son libres. Sus integrantes son victimas y merecen nuestra ayuda.
 
-Si te gusta ese consittucion puedes difundir la, colaborar con un bien o servicio, mejorar la o criticar la.
+Si te gusta ese constitucion puedes difundirla, colaborar con un bien o servicio, mejorarla o criticarla.
 
 Abrazo
